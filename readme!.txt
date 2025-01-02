@@ -1,0 +1,1 @@
+I am not responsible for damage caused to the device
